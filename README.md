@@ -1,5 +1,9 @@
-## Hi there 👋
+## EU SOU KAYQUE GUSTAVO DOS SANTOS
+@CRISTIANO RONALDO
 
+@NeymarJR
+
+@kayque_7b
 <!--
 **junindo0800/junindo0800** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
